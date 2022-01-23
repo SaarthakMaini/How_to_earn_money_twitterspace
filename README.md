@@ -1,4 +1,4 @@
-#How to earn money from twitter
+# How to earn money from twitter
 * Focus on providing value.
 * If you have a low following, you can still earn!
 * Be authentic
@@ -16,4 +16,4 @@
 * Learn in public for collaboration
 * Can host paid twitter spaces
 * How do you select the tweet to be sponsered?
-      *Quality of the tweet
+     *Quality of the tweet
