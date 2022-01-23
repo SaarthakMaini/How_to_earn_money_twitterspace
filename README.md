@@ -16,4 +16,4 @@
 * Learn in public for collaboration
 * Can host paid twitter spaces
 * How do you select the tweet to be sponsered?
-     *Quality of the tweet
+     * Quality of the tweet
