@@ -21,3 +21,27 @@
      * Do they know who you are and what kind of content you post?
      * Don't waste time and are direct to the point
 * Quality> Quantity
+* How much can you make by sponsered tweets? ==> $50-$1000
+* Make a community
+* Be patient
+* Trust the process
+* Personal branding is important
+* Engaging in the brand's tweets and in general with the community is important
+* Have your DM's open for receiving sponsor offers
+* Workflow and decision making process?
+     * Keep the content focused on brand
+     * Some due diligence is needed
+     * If you are getting a small amount , don't put much time into it. Your time is important!
+     * Have a contract
+     * Hire professionals like business consultants and accountants , to deal with your taxes and research work
+     * TransferWise can be used for transactions
+     * Use the product first yourself
+* Be honest
+* Aim for facts
+* Just get started!!
+* Disclose that you are sponsoring
+
+## Thank you for the twiiter space, I got to learn a lot!!
+## Let's connect
+## https://twitter.com/SaarthakMaini
+     
