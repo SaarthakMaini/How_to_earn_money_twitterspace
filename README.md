@@ -17,3 +17,7 @@
 * Can host paid twitter spaces
 * How do you select the tweet to be sponsered?
      * Quality of the tweet
+     * Trust in the person who sends the DM
+     * Do they know who you are and what kind of content you post?
+     * Don't waste time and are direct to the point
+* Quality> Quantity
