@@ -41,7 +41,7 @@
 * Just get started!!
 * Disclose that you are sponsoring
 
-## Thank you for the twiiter space, I got to learn a lot!!
-## Let's connect
+## Thank you for the twitter space @Eddie Jaoude, I got to learn a lot!!
+## Let's connect!!
 ## https://twitter.com/SaarthakMaini
      
